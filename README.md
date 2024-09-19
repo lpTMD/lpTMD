@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @lpTMD
 
-I have private repositories of code I've used for schoolwork. If you'd like to see them, please contact me.
+I have private repositories of code I've used for schoolwork. If you'd like to see them, please contact me on my socials.
 
 Here's projects I've collaborated on:
 
